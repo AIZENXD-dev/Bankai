@@ -1,4 +1,4 @@
-Web 3
+
 Be anonymous!
 Decentralized mind. Centralized focus
 
