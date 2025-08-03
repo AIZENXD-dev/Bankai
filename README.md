@@ -27,4 +27,4 @@ Decentralized mind. Centralized focus
 
 
  🕶️ I don’t flex. I deploy.  
-⛓️ I believe in Web3,privacyy, and power without permission#
+⛓️ I believe in Web3,privacy, and power without permission#
